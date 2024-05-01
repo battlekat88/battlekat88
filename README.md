@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @battlekat88
+- 👋 Hi, I’m @Zach
 - 👀 I’m interested in Game Design
 - 🌱 I’m currently learning at Drexel University
 - 💞️ I’m looking to collaborate on a ton of cool projects
